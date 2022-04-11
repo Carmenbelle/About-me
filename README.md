@@ -1,1 +1,1 @@
-Its really difficult to talk about myself because i know myself so well that i have numerous things to say. some might be boring and some might be exciting. so, I will try and say what I can. 
+Its really difficult to talk about myself because I know myself too well that I have numerous things to say. some might be boring and some might be exciting. so, I will try and say what I can. 
